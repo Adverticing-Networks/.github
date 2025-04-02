@@ -474,3 +474,56 @@ EVADAV’s financial structure, with optimized costs, enhanced revenue models, a
 - [EvaDav - Advertising Network Reviews - Affpaying](https://www.affpaying.com/evadav)
 - [CASE STUDY] How to get 350% ROI by combining Push Notifications from EvaDav and Gambling offers | Affiliate Marketing Forum | AffiliateFix](https://www.affiliatefix.com/threads/case-study-how-to-get-350-roi-by-combining-push-notifications-from-evadav-and-gambling-offers.160518/)
 - [Evadav ad network review 2025: Detailed Info | AllPushNetworks](https://affroom.com/evadav-review/)
+
+
+## Evadav Dubai 2025
+![evadav-dubai](https://github.com/user-attachments/assets/dad74d94-971e-4622-8a40-2673d44d1d86)
+
+# EVADAV at Affiliate World Dubai 2025
+
+![EVADAV Banner](https://evadav.blog/imghost/forums/11.02.2025%20AW%202025%20Dubai/static_4.png)
+
+We're excited to announce that **EVADAV will be participating in AW Dubai on February 26-27!** This is an excellent opportunity to personally meet our team and discuss new perspectives for scaling your business.
+
+**Our booth: C25**
+
+## EVADAV – More Than an Ad Network!
+
+Now we are **EVADAV TRAFFIC GROUP**, uniting several divisions under one brand:
+
+- **EVADAV AD NETWORK** – a leading advertising network with **Push, Popunder, InPage and Native** formats.
+- **EVADAV APPS** – in-house mobile application development with **13+ products** and **20+ million installations**.
+- **SEARCH ARBITRAGE** – a media buying division for search traffic monetization.
+- **PERFORMANCE MEDIA BUYING** – scaling for large advertisers through **Revenue Share & CPA models**.
+
+## Why Meet EVADAV in Dubai?
+
+We've prepared **unique opportunities** for our partners:
+- **Access to premium traffic** – More than 150 exclusive sources with direct contracts, available through **CPC, CPM, and CPA models**.
+- **Exclusive quotas** for our proprietary VPN applications.
+- **Media buying team expansion** – new positions in **Prague and Warsaw**.
+- **Media Buying Academy** – training with Europe's leading specialists.
+
+**Don't miss this opportunity – Scale YOUR PROFIT with Professionals!**
+
+[Schedule a Meeting With Us!](https://calendly.com/aw-2025/meet-evadav-in-dubai-at-affiliate-world-conference)
+
+## Meet Our Team
+
+### Ad Network Team:
+- Natalia Gerasimenko – Head of Sales
+- Yuliia Kondratiuk – Head of Demand ([LinkedIn](https://www.linkedin.com/in/yuliia-kondratiuk-07b895114/))
+- Lina Kishtaari – Account Manager ([LinkedIn](https://www.linkedin.com/in/lina-kishtaari-980346198/))
+- Maria Usenko – Business Development Manager ([LinkedIn](https://www.linkedin.com/in/mariia-usenko-392358197/))
+- Alexandra Didova – Business Development Manager ([LinkedIn](https://www.linkedin.com/in/oleksandra-didova-5637b2345/))
+- Tetiana Bondaruk – Account Manager ([LinkedIn](https://www.linkedin.com/in/tetiana-bondaruk-9012901b3/))
+- Kirill Prosandeev – Head of CPA ([LinkedIn](https://www.linkedin.com/in/kirill-prosandeev/))
+
+### Apps Team:
+- Natalia Gerasimenko – Head of Media Buying ([LinkedIn](https://www.linkedin.com/in/german-ovcharenko-b277843a/))
+- Petr Galagan – Product Officer
+
+### Consulting:
+- Yu Leo – Chief Business Development Officer ([LinkedIn](https://www.linkedin.com/in/leotraffic/))
+
+[Visit us at booth C25!](https://calendly.com/aw-2025/meet-evadav-in-dubai-at-affiliate-world-conference) We look forward to meeting you!
