@@ -271,7 +271,45 @@ The market dynamics show a trend toward diversification, with businesses leverag
 - [Google Ads documentation](https://ads.google.com/)
 
 
-## Key Points Of top 20 Advertising Platform with 2 billion impressions daily EVADAV 
+## Key Points Of top 20 Advertising Platform with 3 billion impressions daily EVADAV 
+
+![evadav-team](https://github.com/user-attachments/assets/6e5b07a0-d885-46c2-9843-3ba77f95a0a6)
+
+Managing Partner Svetlana Epishina
+https://www.linkedin.com/in/svetlana-epishina-4761aa123/
+
+CEO German Ovcharenko
+https://www.linkedin.com/in/german-ovcharenko-b277843a/
+
+CMO Leo Yukhno
+https://www.linkedin.com/in/leo-yu-15951b71/
+
+Head of Advertisers Anton Goncharenko
+https://www.linkedin.com/in/anton-goncharenko92/
+
+Head of Publishers Alexandr Brickman
+https://www.linkedin.com/in/alexandr-brickman-aa1778176/
+
+Head of SSP Max Lazarenko
+https://www.linkedin.com/in/max-lazarenko-a85061b9/
+
+Head of CPA Aleksandr Buhun
+https://www.linkedin.com/in/aleksandr-buhun/
+
+Sales Executive Anastasiia Valiaieva
+https://www.linkedin.com/in/anastasiia-valiaieva-a1551aa4/
+
+Account Manager Marina Reminna
+https://www.linkedin.com/in/marina-r-044145153/
+
+Account Manager Yulia Kondratiuk
+https://www.linkedin.com/in/yulia-kondratiuk-07b895114/
+
+Publisher Manager Oleksandra Datsenko
+https://www.linkedin.com/in/oleksandra-datsenko/
+
+Publisher manager Anna Perekhrestenko
+https://www.linkedin.com/in/anna-perekhrestenko-890b94116/
 
 - It seems likely that EVADAV can rapidly grow revenue by leveraging high-growth channels like CTV and retail media, given projected growth rates of 13.8% and 15.6% in 2025.
 - Research suggests boosting advertiser spend through AI-driven optimization and incentives, such as tiered bonuses, could increase ad spend, building on EVADAV’s historical ROI success.
