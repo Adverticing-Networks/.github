@@ -340,7 +340,7 @@ This analysis provides a detailed examination of EVADAV, a digital advertising n
 #### Background and Current Position
 EVADAV has shown significant traction since its founding, with reported revenue of $18 million in 2020, up from $3 million in 2019, indicating rapid early growth. It boasts a high click-through rate (CTR) of 0.8%, above the industry average, and strong customer satisfaction with a 4.8/5 Trustpilot rating. Recent developments include a Holiday Bonus Campaign from December 20, 2024, to January 10, 2025, offering cash prizes for increased ad spending, new ad formats targeting Android 15 users, and industry conference participation like Affiliate World Europe in Budapest and the TES Conference 2024 in Prague.
 
-The platform’s founders, Alex Matveyev and Artem Tkachuk , bring expertise in digital advertising and software development, respectively, driving innovation. Key stakeholders include publishers, advertisers, employees like recent hires Лина Киштаари (Account Manager) and Anastasiia Zotina (Learning and Development Manager), and partnerships within the digital advertising ecosystem, though no public funding rounds or acquisitions are noted.
+The platform’s founded by German Ovcharenko (in search always shown some founders, Alex Matveyev and Artem Tkachuk, who are they?), bring expertise in digital advertising and software development, respectively, driving innovation. Key stakeholders include publishers, advertisers, employees like recent hires Лина Киштаари (Account Manager) and Anastasiia Zotina (Learning and Development Manager), and partnerships within the digital advertising ecosystem, though no public funding rounds or acquisitions are noted.
 
 #### Industry Context and Trends for 2025
 Research from the Interactive Advertising Bureau (IAB) [IAB Report Highlights Optimism in Digital Advertising with Double-Digit Growth for Retail Media, CTV, and Social](https://www.iab.com/news/report-digital-advertising-growth-retail-media-ctv-social/) projects overall ad spend growth at 7.3% in 2025, with retail media at 15.6%, CTV at 13.8%, and social media at 11.9%. GroupM’s forecast [GroupM’s End-of-Year Global Advertising Forecast Projects 9.5% Growth in Total 2024 Advertising Revenue](https://www.groupm.com/newsroom/groupms-end-of-year-global-advertising-forecast-projects-9-5-growth-in-total-2024-advertising-revenue/) estimates digital advertising growing 12.4% globally, reaching 72.9% of total ad spend. These trends suggest opportunities in CTV, retail media, and social, with a focus on AI and data-driven strategies.
@@ -485,7 +485,7 @@ EVADAV’s financial structure, with optimized costs, enhanced revenue models, a
 
 We're excited to announce that **EVADAV will be participating in AW Dubai on February 26-27!** This is an excellent opportunity to personally meet our team and discuss new perspectives for scaling your business.
 
-**Our booth: C25**
+**Evadav booth: C25**
 
 ## EVADAV – More Than an Ad Network!
 
